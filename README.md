@@ -1,0 +1,5 @@
+- 👋 Hi, I’m the assistant to the regional manager at bkbn.io
+- 👀 I’m interested in generating amazing applications
+- 🌱 I’m currently learning to farm
+- 💞️ I’m looking to collaborate on Battlestar Galactica LARP
+- 📫 How to reach me ... bkbn.io
